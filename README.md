@@ -29,4 +29,4 @@ Mortis Out :3 (simplemente quise decir eso) <img src="https://raw.githubusercont
 
 <img src="https://media.tenor.com/sIwa-WaEGAQAAAAj/hello-hi.gif" width="70"><br>
 
-<img src="https://raw.githubusercontent.com/UnhappyPicture/UnhappyPicture/refs/heads/main/0adcd03c36bdb4dbb5ac13708c899b33.jpg" width="300">
+<img src="https://raw.githubusercontent.com/UnhappyPicture/UnhappyPicture/refs/heads/main/f7e41e27e1aa14a5299020f940c315ac.jpg" width="300">
