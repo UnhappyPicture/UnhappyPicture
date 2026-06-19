@@ -21,3 +21,14 @@ Mi cumpleaños es en Octubre Específicamente El 12 de Octubre :) ,,,,
 
 ESTARÉ AGREGANDO INFORMACIÓN DE MI EN CUALQUIER MOMENTO!!! 
 Mortis Out :3 (simplemente quise decir eso) <img src="https://raw.githubusercontent.com/UnhappyPicture/UnhappyPicture/refs/heads/main/0adcd03c36bdb4dbb5ac13708c899b33.jpg" width="300">
+<div align="center">
+
+<img src="https://64.media.tumblr.com/a4a2ee2c035fba8ec2ebfb1c7f87c3fe/11ed38f3561de7f9-ee/s640x960/ac7b60b78213daad115c3d6ea7ba68fc56a8f792.pnj" width="90%">
+
+<img src="https://media.tenor.com/sIwa-WaEGAQAAAAj/hello-hi.gif" width="70"><br>
+
+<img src="https://raw.githubusercontent.com/UnhappyPicture/UnhappyPicture/refs/heads/main/0adcd03c36bdb4dbb5ac13708c899b33.jpg" width="300">
+
+<img src="https://64.media.tumblr.com/67ea5f5b014136cbd9c0835b127783ac/11ed38f3561de7f9-06/s640x960/e047e3f88cc42198bfd01f950d8538d4dd7084e7.pnj" width="90%">
+
+</div>
