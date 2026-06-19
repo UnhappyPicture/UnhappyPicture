@@ -20,4 +20,4 @@ No suelo ser grosero pero si me irritas, puedo llegar ah insultarte lo siento! A
 Mi cumpleaños es en Octubre Específicamente El 12 de Octubre :) ,,,, 
 
 ESTARÉ AGREGANDO INFORMACIÓN DE MI EN CUALQUIER MOMENTO!!! 
-Mortis Out :3 (simplemente quise decir eso) 
+Mortis Out :3 (simplemente quise decir eso) <img src="https://raw.githubusercontent.com/UnhappyPicture/UnhappyPicture/refs/heads/main/0adcd03c36bdb4dbb5ac13708c899b33.jpg" width="300">
