@@ -1,5 +1,5 @@
- <img src="https://raw.githubusercontent.com/UnhappyPicture/UnhappyPicture/refs/heads/main/281fe47a61c67c505a9bc871866249dc.jpg">
-<img src="https://media.tenor.com/sIwa-WaEGAQAAAAj/hello-hi.gif">  HELLO I LOVE MY GF 
+HOLA SOY MORTIS! PERO PUEDES LLAMARME ARI <img src="https://raw.githubusercontent.com/UnhappyPicture/UnhappyPicture/refs/heads/main/281fe47a61c67c505a9bc871866249dc.jpg">
+<img src="https://media.tenor.com/sIwa-WaEGAQAAAAj/hello-hi.gif"> HELLO I LOVE MY GF 
 <div align="center">
 
 <img src="https://64.media.tumblr.com/d4fdc3deb5c228169678c809fad19a6a/24262cb671284a10-e5/s500x750/09cc2c3cd624a396ad0692cf964e2d84d477bb07.pnj" width="300"><br>
