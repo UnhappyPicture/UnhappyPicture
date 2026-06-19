@@ -15,3 +15,4 @@ puedo llegar ah ignorarte si aún te conozco, pero si me llamas la atención pod
 Mi hijo 𐔌՞ ܸ.ˬ.ܸ ՞𐦯
 
 odio que me ignoren, si noto que me ignoras es ALGO probable que te haga lo mismo
+<img src="https://raw.githubusercontent.com/UnhappyPicture/UnhappyPicture/refs/heads/main/fe44fb8ffde23db0ecea392845b401b9.jpg">
