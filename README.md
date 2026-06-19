@@ -10,4 +10,5 @@
 
 </div>
 puedo llegar ah ignorarte si aún te conozco, pero si me llamas la atención podré molestarte un poco, 
-<img src="https://raw.githubusercontent.com/UnhappyPicture/UnhappyPicture/refs/heads/main/9807c66b661ed86582aa9464084e5547.jpg">
+<img src="https://raw.githubusercontent.com/UnhappyPicture/UnhappyPicture/refs/heads/main/9807c66b661ed86582aa9464084e5547.jpg"> puedes encontrarme en la zona de forsaken paso la mayor parte del tiempo alli, aunque no suelo estar activo la mayoría del tiempo estoy con mi novio, oh con mi mejor amigo
+My cats ˃ 𖥦 ˂
