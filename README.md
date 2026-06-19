@@ -1,5 +1,5 @@
 ![](https://raw.githubusercontent.com/HappyTrendy/HappyTrendy/main/e16002343cd5306d81360bc6455f4be9.jpg)
-<img src="https://media.tenor.com/wYWU7LaRoRUAAAAj/cat-cat-bounce.gif">  I LOVE MY GF ˃͈◡˂͈
+<img src="https://media.tenor.com/sIwa-WaEGAQAAAAj/hello-hi.gif">  I LOVE MY GF ˃͈◡˂͈
 <div align="center">
 
 <img src="https://64.media.tumblr.com/d4fdc3deb5c228169678c809fad19a6a/24262cb671284a10-e5/s500x750/09cc2c3cd624a396ad0692cf964e2d84d477bb07.pnj" width="300"><br>
