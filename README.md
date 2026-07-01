@@ -20,6 +20,8 @@ odio que me ignoren, si noto que me ignoras es ALGO probable que te haga lo mism
 <img src="https://raw.githubusercontent.com/UnhappyPicture/UnhappyPicture/refs/heads/main/fe44fb8ffde23db0ecea392845b401b9.jpg"><img src="https://media.tenor.com/zh7BuYTb_O0AAAAj/shocked-anime.gif"> Si eres alguien Problemático, No me voy ah juntar contigo almenos que me manipules,Y Me chantaje
 No suelo ser grosero pero si me irritas, puedo llegar ah insultarte lo siento! Aveces simplemente no estoy de humor mil disculpas por eso!<img src="https://raw.githubusercontent.com/UnhappyPicture/UnhappyPicture/refs/heads/main/b85d6535ea348c62b39c3760ee129122.jpg"> También puedo llegar ah robarte algo de tu personalidad, Lo siento si te molesta :( Y también si hago algo que te no te gusta oh te incomoda, Te recomiendo que me digas ya que seguire haciendo bromas pesadas oh chistes de humor negro, (depende de quien eras) ,,,  
 Mi cumpleaños es en Octubre Específicamente El 12 de Octubre :) ,,,, 
+
+
 BYI; ¡¡¡¡¡¡¡¡¡¡Tengo POSIBLE , SOSPECHA de autismo y TDAH!!!!!!! Por favor, tengan paciencia conmigo si estoy irritado, triste, etc... Normalmente solo hablo con amigos cercanos durante esos períodos porque ODIO arremeter contra la gente sin querer!!! ¡¡¡Nunca quiero lastimar a nadie a propósito!!! ¡¡¡También AMO MUCHO a mis amigos y a mi novia y me pongo terriblemente a la defensiva con ellos!!!
 
 ESTARÉ AGREGANDO INFORMACIÓN DE MI EN CUALQUIER MOMENTO!!! 
